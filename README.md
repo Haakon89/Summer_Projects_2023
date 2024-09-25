@@ -1,1 +1,1 @@
-# Summer_Projects_2023
+These are the summer projects I worked on during the summer vacation of 2023
